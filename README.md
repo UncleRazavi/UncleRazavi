@@ -15,5 +15,8 @@ I focus on expanding my knowledge and skills by engaging in projects and studies
 ##  Get in Touch
 
 [✉️ Email me](mailto:gildedmath@gmail.com)  
+
 [🔗 Connect on LinkedIn](https://www.linkedin.com/in/hossein-razavi-485a84288)
-[Visit my personal website ,  cool stuffs waiting for you ](https://unclerazavi.github.io/)
+
+[( ͡ᵔ ͜ʖ ͡ᵔ) Visit my personal website , cool stuffs waiting for you ](https://unclerazavi.github.io/)
+
